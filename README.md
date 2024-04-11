@@ -5,12 +5,19 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hey buddy! My name is Alicia, you can call me 'AC' i am a 13 year old student on the school E.B.M Leoberto Leal!
+ this account is for learning, on the projet 'Hellow Blumenau'!
+ 
+- 🎶 i like hearing music
+- 😄 my pronouns are her/she
+- 🎁 a fact about me: i have a scar on my knee
+- 📐 im in eight grade
+
+i live on Badenfurth, in Blumenau.
+ to arrive here, i needed to:
+
+ 1- be chosen between 400 students
+
+ 2-be qualified between 300 people
+
+ 3-win a place beetween 100 others students
